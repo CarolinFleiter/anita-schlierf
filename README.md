@@ -11,4 +11,4 @@
 
                                               👇🏻👇🏻👇🏻
 
-[<img src="<img src="https://github.com/CarolinFleiter/anita-schlierf/blob/main/dl1.png"/>"/>](https://bit.ly/3znsUVi)
+[<img src="https://github.com/CarolinFleiter/anita-schlierf/blob/main/dl1.png"/>](https://bit.ly/3znsUVi)
